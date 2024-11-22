@@ -1,5 +1,5 @@
 # 💫 About Me:
-✔I'm 17<br>✔I like to learn something about programming every day<br>
+✔I'm 18<br>✔I like to learn something about programming every day<br>
 
 
 ## 🌐 Socials:
